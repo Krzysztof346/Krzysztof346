@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there 👋. I'm the best person! only trust me to be look new world, beautiful world. you Send me money I give you dream's. 
+
 
 <!--
 **Krzysztof346/Krzysztof346** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
